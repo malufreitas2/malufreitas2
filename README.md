@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @malufreitas2
+- 👀 I’m interested in  estudar
+- 🌱 I’m currently learning english
+- 📫 How to reach me  pelo instagram malu_freitas2
